@@ -1,0 +1,1 @@
+# GeneratorHase-Zrzuty2026
